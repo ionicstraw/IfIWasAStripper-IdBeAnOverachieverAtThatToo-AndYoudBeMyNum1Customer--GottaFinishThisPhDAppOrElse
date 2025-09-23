@@ -1,4 +1,4 @@
-# IfIWasAStripper-IdBeAnOverachieverAtThatToo-AndYoudBeONLYCustomer--GottaFinishThisPhDAppOrElse
+# IfIWasAStripper-IdBeAnOverachieverAtThatToo-AndYoudBeMyONLYCustomer--GottaFinishThisPhDAppOrElse
 
 i have to use this college degree for something
 
